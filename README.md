@@ -55,4 +55,19 @@ Be careful about making commitments. Only commit to things you are confident you
 
 Build a relationship in which you do receive value from your average customer (not every customer) that is (in general, over time) more than enough compensation for what you put in. It isn't a matter of keeping score. Don't think that your gifts create a debt. Be happy if the customer gets ten times as much value as they give back. But if, on average, the cost to you is even a little higher than what the customer gives back, then unless you start out wealthy this won't last long. Charity is great, but it's a different thing. Here we are discussing good business.
 
-Help your customers understand the right time to pay you.
+Help your customer understand the right time to pay you. Ironically, if you are running your life this way, it is unnecessary for your customer to pay you when they need you most. If they have a desperate need for something you can provide, they can just mention it and it is a top priority for you anyway. Other than keeping prior commitments, you will drop everything to help them out, with no need for payment. Because you astutely see it as an opportunity to deliver huge value to a good customer. (Of course they may astutely see it as an opportunity to strenthen their supplier relationship by volunteering a sweet payment. But that's their business, and none of yours. Don't get confused.)
+
+The time when your customer really should pay you is when they do want the value you provide, but not badly enough for it to automatically be a priority for you. It is their way of putting their thumb on the scales of your priorities. For example, they may have a job they'd really like to do, but you may say you wouldn't be inclined to do it as a volunteer. It is a good use of your time, but you have other things to do that you would enjoy more, or places you could deliver more value. So you gently help your customer realize they could pay you so you will take the job.
+
+How Is It Going So Far?
+-----------------------
+
+It is a bit early to say. But I am having a lot of fun with it. Here are some things I am doing:
+
+- In my job as Principal Architect at LinkedIn, I work in the LinkedIn For Good team, helping make [LinkedIn a platform for connecting skilled volunteers with non-profits](http://techcrunch.com/2014/01/15/linkedin-launches-a-volunteer-marketplace-to-extend-its-job-hunting-platform-to-free-work/). This is an actual job, but a fun and rewarding one.
+
+- I am an investor and a member of the board of directors for a cool and capable space start-up, [Astrobotic](http://www.astrobotic.com), that is racing to carry out the first privately funded lunar mission. Other than my investment and some nominal board member comp, I am entirely volunteering on this, but I am being amply repaid in fun and learning. When was the last time you watched a major space launch from NASA's tent, or talked through the terms of a customer's contract for commercial lunar payload?
+
+- I have hired an AI researcher who I greatly respect as a private tutor, to help support his work while again being amply repaid in fun and learning.
+
+I will update this space to let you know how it goes.
