@@ -53,7 +53,7 @@ Gravitate toward your best opportunities to help good customers. Remember that, 
 
 Be careful about making commitments. Only commit to things you are confident you want to follow through with, and then meticulously keep whatever commitments you make.
 
-Build relationships in which you do receive value from your average customer (not every customer) that is (in general, over time) more than enough compensation for what you put in. It isn't a matter of keeping score. Don't think that your gifts create a debt. Be happy if the customer gets ten times as much value as they give back. But if, on average, the cost to you is even a little higher than what the customer gives back, then unless you start out wealthy this won't last long. Charity is great, but it's a different thing. Here, we are discussing good business.
+Build relationships in which the value you receive from your customer is, on average over time, far greater than your cost of helping them. It isn't a matter of keeping score. Don't think that your gifts create a debt. Be happy if the customer gets ten times as much value as they give back. But if, on average over time, the cost to you is even a little higher than what you receive, then unless you start out wealthy this won't last long. Charity is great, but it's a different thing. Here, we are discussing good business.
 
 Help your customer understand the right time to pay you. If you approach this in the right spirit, an outsider may correctly see you as a savvy negotiator. But your customer will know you are just helping them figure out how to get the most value you can sensibly provide them.
 
