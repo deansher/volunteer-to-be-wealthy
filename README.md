@@ -49,7 +49,7 @@ Over time, here is how I think this plays out:
 
 Don't wack your customer over the head with this philosophy at the very beginning. You might weird them out. Keep it light.
 
-Gravitate toward your best opportunities to help good customers. Remember that, from your perspective, anyone you decide to deliver value to is your customer. You have to make good decisions about what your customer will value -- if you get this wrong, you are just a nuisance. Sometimes it is helpful to ask the customer what they need or want, but don't overweight this in your thinking. On the whole, people don't know what they will value until they experience it. Also, if you give your customer something they already knew they wanted, your impact is quite limited.
+Gravitate toward your best opportunities to help good customers. Remember that, from your perspective, anyone you decide to deliver value to is your customer. You have to make good decisions about what your customer will value; if you get this wrong, you are just a nuisance. Sometimes it is helpful to ask the customer what they need or want, but don't overweight this in your thinking. On the whole, people don't know what they will value until they experience it. Also, if you give your customer something they already knew they wanted, your impact is quite limited.
 
 Be careful about making commitments. Only commit to things you are confident you want to follow through with, and then meticulously keep whatever commitments you make.
 
