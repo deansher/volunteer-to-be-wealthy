@@ -26,7 +26,7 @@ From what I have said so far, I may seem to be claiming you could get rich by st
 
 Most people think someone becomes their customer by paying them money. That is a self-defeating way of thinking about customers! In this world view, the customer relationship starts when the customer finally does the first thing they don't want to do, and progresses from there. It puts a brick wall across the starting gate.
 
-Someone becomes your customer when they start receiving value from you. In fact, you should think of them as your customer from the moment you decide you are going to deliver value to them. Sending you money isn't how your customer gets started. It is just a nice thing that happy customers do down the road to keep the process going.
+Someone becomes your customer when they start receiving value from you. In fact, you should think of them as your customer from the moment you decide you are going to deliver value to them. Sending you money isn't how your customer gets started. It is just a nice thing that happy customers do down the road to keep the process going. 
 
 And it *is* important to keep the process going. That is why you have to choose your customer very carefully in the first place. I opened this essay by mangling a common quote, as "a fool and his money are seldom parted". My main point was that if you hold your money, time, and attention close and refuse to give them to anyone, you make your own life very hard. But this also applies to choosing your customer: a fool and his money will not readily be parted, so make sure your customer is no fool. (Also make sure they will end up having money or other value they could give you.)
 
@@ -37,6 +37,22 @@ I think you can. I have begun to try. I will let you know how it goes.
 
 So far I have framed this as a philosophy about starting and running a business, but I think it can work just as well for starting and running a career. Early indications are good. I'm not actually making my living this way yet, but I'm having a lot of fun with it.
 
-Here's how I think this works. Focus your time wherever you think you can deliver the most value to a good customer. Do this as a gift, no strings attached, with no expectation of repayment or even gratitude. If you feel in the back of your mind that you are making them feel indebted to you, it totally screws this up. It is a gift! At this point, you are just building a strong customer relationship with a good customer:
+Here's how I think this works. Focus your time wherever you think you can deliver the most value to a good customer. Do this as a gift, no strings attached, with no expectation of repayment or even gratitude. If you feel in the back of your mind that you are making them feel indebted to you, it totally screws this up. It is a gift!
 
-- 
+At this point, you are just building a strong customer relationship with a good customer:
+
+- Choose a customer who you are uniquely in a position to help, a lot.
+- Choose a customer who is no fool -- one who will be happy to give you money or other value in the future if they do want more of what you are offering.
+- Choose a customer who will have something to give you in the future. (Charity is great too, but it is a different topic.)
+
+Over time, here is how I think this plays out:
+
+Don't wack your customer over the head with this philosophy at the very beginning. You might weird them out. Keep it light.
+
+Gravitate toward your best opportunities to help good customers. Remember that from your perspective, anyone you decide to deliver value to is your customer.
+
+Be careful about making commitments. Only commit to things you are confident you want to follow through with, and then meticulously keep whatever commitments you make.
+
+Build a relationship in which you do receive value from your average customer (not every customer) that is (in general, over time) more than enough compensation for what you put in. It isn't a matter of keeping score. Don't think that your gifts create a debt. Be happy if the customer gets ten times as much value as they give back. But if, on average, the cost to you is even a little higher than what the customer gives back, then unless you start out wealthy this won't last long. Charity is great, but it's a different thing. Here we are discussing good business.
+
+Help your customers understand the right time to pay you.
