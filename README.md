@@ -30,3 +30,13 @@ Someone becomes your customer when they start receiving value from you. In fact,
 
 And it *is* important to keep the process going. That is why you have to choose your customer very carefully in the first place. I opened this essay by mangling a common quote, as "a fool and his money are seldom parted". My main point was that if you hold your money, time, and attention close and refuse to give them to anyone, you make your own life very hard. But this also applies to choosing your customer: a fool and his money will not readily be parted, so make sure your customer is no fool. (Also make sure they will end up having money or other value they could give you.)
 
+Can you Run Your Life This Way?
+-------------------------------
+
+I think you can. I have begun to try. I will let you know how it goes.
+
+So far I have framed this as a philosophy about starting and running a business, but I think it can work just as well for starting and running a career. Early indications are good. I'm not actually making my living this way yet, but I'm having a lot of fun with it.
+
+Here's how I think this works. Focus your time wherever you think you can deliver the most value to a good customer. Do this as a gift, no strings attached, with no expectation of repayment or even gratitude. If you feel in the back of your mind that you are making them feel indebted to you, it totally screws this up. It is a gift! At this point, you are just building a strong customer relationship with a good customer:
+
+- 
