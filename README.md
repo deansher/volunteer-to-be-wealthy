@@ -3,7 +3,7 @@ Volunteer to Be Wealthy
 
 _A fool and his money are seldom parted._
 
-Here's a lightly tested theory about business and life that I am trying out as my guiding principle. I will update this space with my experiences. Probably this becomes a blog.
+Here's a lightly tested theory about business and life that I am trying out as my guiding principle. I will update this space with my experiences.
 
 When most people look for a job or start a business, they begin with the question "how much money can I convince people to give me?" I think a far more profitable first question is "how much value can I give away?"
 
